@@ -1,0 +1,1 @@
+# projects-of-Applied-statistics-and-modeling
